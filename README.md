@@ -7,4 +7,4 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently not working
 - 🌱 I’m currently learning INFORMATION SYSTEMS in AMF (FACULTY)
-- 📫 How to reach me: www.cristiankonrad05@hotmail.com 
+- 📫 How to reach me: cristianfkonrad@hotmail.com
