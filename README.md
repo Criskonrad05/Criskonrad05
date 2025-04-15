@@ -5,6 +5,6 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently not working
+- 🔭 I’m working in META SERVIÇOS EM INFORMATICA S/A
 - 🌱 I’m currently learning INFORMATION SYSTEMS in AMF (COLLEGE)
 - 📫 How to reach me: cristianfkonrad@hotmail.com
